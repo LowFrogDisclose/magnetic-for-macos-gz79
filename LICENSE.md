@@ -1,4 +1,4 @@
-
+smart Extension for Magnetic for macOS - network-speed and dark-mode is the best Magnetic for macOS extension, featuring network-speed and dark-mode. Safe, efficient, and
 
 
 
